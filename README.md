@@ -1,6 +1,6 @@
 # SuhrajitSain/PPT
 ## This is the property of Subhrajit Sain's PowerPoint Presentation Group.
-Class IX
+Class IX, Burdwan Holy Child School.
 This is the PowerPoint PPT of Subhrajit Sain's group.
 
 _**NO TRESPASSING ALLOWED!
